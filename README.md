@@ -14,5 +14,6 @@
 
 
 ## 🔗 Ссылки
-Email: kseny100297@yandex.ru
-Telegram: https://t.me/liskayaa
+
+- Email: kseny100297@yandex.ru
+- Telegram: https://t.me/liskayaa
