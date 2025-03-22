@@ -14,5 +14,5 @@
 
 
 ## 🔗 Ссылки
-[![linkedin](https://img.shields.io/badge/linkedin-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/)
-[![tg](https://png.klev.club/uploads/posts/2024-03/png-klev-club-p-telegramm-ikonka-png-17.png)](https://t.me/liskayaa)
+Email: kseny100297@yandex.ru
+Telegram: https://t.me/liskayaa
