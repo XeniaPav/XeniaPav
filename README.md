@@ -17,3 +17,4 @@
 
 - Email: kseny100297@yandex.ru
 - Telegram: https://t.me/liskayaa
+- Linkedin: https://www.linkedin.com/in/xenia-pavlukhina-06a566359/
